@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning agricultural politics
 - 💞️ I’m looking to collaborate on anything embourgeoisement related
 - 📫 How to reach me - your grandma knows what's up
-- 😄 Pronouns: Peanuts/suck
+- 😄 Pronouns: Straighter than a surgical grade precision ruler
 - ⚡ Fun fact: I constantly challenge myself to surpass room temperature IQ (Personal best - 32)
 
 <!---
